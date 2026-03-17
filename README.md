@@ -76,7 +76,7 @@ This repository reflects my learning journey. Consistency > Perfection.
 
 ## 🤝 Connect with Me
 
-* LinkedIn: (Add your link here)
+* LinkedIn: (https://www.linkedin.com/in/kunalsharma1122/)
 
 ---
 
